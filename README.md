@@ -5,7 +5,8 @@ v- 👋 Hi, I’m Aathira R N
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I used to have a pet grasshopper
 - 
-![cutegirl](https://github.com/user-attachments/assets/a2752259-7fba-4b9a-baba-027d4b8d0d87)
+![girlcode](https://github.com/user-attachments/assets/04ac96b9-0c39-4ca1-9dcc-815d3a4422dd)
+
 
 
 
