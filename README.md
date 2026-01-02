@@ -1,4 +1,5 @@
-https://github.com/user-attachments/assets/ac17720f-e858-43cc-baf2-2960f4ed2054
+![Uploading cutecat.jpeg…]()
+
 
 v- 👋 Hi, I’m Aathira R N
 - I am a final year Computer Science student at College of Engineering, Munnar.
